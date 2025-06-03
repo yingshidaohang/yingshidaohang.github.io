@@ -1,7 +1,7 @@
 <h2>电影网站导航大全，2025免费电影电视剧动漫在线看</h2>
 <p>电影网站导航大全是一个专门为影视爱好者整理的在线影视平台导航网站，它汇集了全网优质的影视资源网站，方便用户快速找到自己感兴趣的影视内容。这个导航网站涵盖了各种类型的影视资源，包括最新电影、电视剧、动漫、综艺节目等，无论是国内的热门剧集还是国外的经典影片，都能在这里找到对应的资源链接。此外，电影网站导航大全还提供了丰富的分类和筛选功能，用户可以根据自己的喜好选择不同的影视类型，快速定位到感兴趣的资源。</p>
 <p>电影网站导航大全的界面设计简洁明了，操作方便，用户无需复杂的注册流程，即可直接浏览和使用。它不仅提供了丰富的影视资源链接，还对每个网站进行了详细的分类和标注，帮助用户快速找到适合自己的影视平台。此外，该导航网站还定期更新资源链接，确保用户能够获取到最新、最热门的影视内容。</p>
-<p><strong>一键访问：</strong><a href="https://yingshidaohang.github.io/" target="_blank"><strong>Omofun动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshidaohang.github.io/" target="_blank"><strong>2025免费电影电视剧动漫在线看</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点</strong></p>
